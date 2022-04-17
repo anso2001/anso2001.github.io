@@ -1,12 +1,14 @@
-### Monday     
-A.) 5 Supersets   
+# Week 16 :chipmunk:
+
+### `Monday`     
+`A.)` 5 Supersets   
 Bench press: 12-8-4-8-12 reps
 
 8 Barbell rows
 
 -Reps on the bench press will change for every set, reps on barbell rows stay the same on all five sets. 
 
-B.) EMOM 15min 
+`B.)` EMOM 15min 
 
 Min 1: Box jumps 60/50cm
 
@@ -19,8 +21,8 @@ Min 4: Push-ups
 Min 5: Rest   
 
 ---
-### Tuesday
-A.) EMOM 10min 
+### `Tuesday`
+`A.)` EMOM 10min 
 
 Min 0-3: 3 Hang Snatch
 
@@ -30,7 +32,7 @@ Min 7-10: 1 Hang Snatch
 
 -increase weight by feel. 
 
-B.) 21-15-9 reps for time of: 
+`B.)` 21-15-9 reps for time of: 
 
 Overhead squats @70% of today's Hang snatch
 Burpee over bar 
@@ -48,8 +50,8 @@ Rest 3min then perform
 -The total time will be your score.  
   
 ----
-### Wednesday
-A.) Teamday! 
+### `Wednesday`
+`A.)` Teamday! 
 
 6 Rounds for time: 
 
@@ -62,42 +64,41 @@ A.) Teamday!
 
 -Finnish one full round before switching team members. I go you go. 
 
-B.) 4 Supersets (NOT IN TEAMS)
+`B.)` 4 Supersets (NOT IN TEAMS)
 
 12 Barbell bicep curls 
 
 12-15 Narrow push-ups 
 
 ----
-### Thursday
-A.) Back squat: 10-8-6-4-2-15 reps
+### `Thursday`
+`A.)` Back squat: 10-8-6-4-2-15 reps
 
 
 -Increase weight for every set. 
 
-B.) 4 set 
-
+`B.)` 4 set 
 
 8/8 One legged deadlift 
 14 Split jumps with weight plate. 
 
-C.) Core work of you're choosing.   	
+`C.)` Core work of you're choosing.   	
 
 ---
-### Friday 
-A.) 4 Supersets 
+### `Friday` 
+`A.)` 4 Supersets 
 
 6 Seal Rows 
 10 Barbell strict press
 
 
-B.) 3 Supersets
+`B.)` 3 Supersets
 
 
 3-10 Strict pull-ups
 15 Lateral raises
 
-C.) 3 Supersets
+`C.)` 3 Supersets
 
 
 12 Ring rows 
