@@ -1,3 +1,6 @@
+title: Kalasboxen
+theme: hugo-PaperMod
+
 params:
     homeInfoParams:
         Title: Hi there wave
