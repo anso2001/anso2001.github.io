@@ -59,11 +59,11 @@ Min 6: Rest
 `A.)` 5 Rounds NOT FOR TIME  
 10 Bench press  
 10 Strict pull-ups  
-10 Barbell strict press
+10 Barbell strict press  
 10 KB Gorilla rows
 
 `B.)` 3 Supersets  
-12 Barbell bicep curl
+12 Barbell bicep curl  
 20 Bench dips or narrow push ups 
 
 
