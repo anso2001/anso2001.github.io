@@ -1,4 +1,4 @@
-## Week 17  :dog: 
+## Week 18  :dog: 
 
 ### `Monday`     
 A.) Deadlift: 10-8-6-4-2 reps  
