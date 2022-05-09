@@ -1,4 +1,4 @@
-## Week 18  :dog: 
+## Week 19  :lizard: 
 
 ### `Monday`     
 A.) Overhead squat: Work up to a heavy double.  
