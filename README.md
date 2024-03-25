@@ -1,79 +1,66 @@
-## Week 12  :polar_bear: 
+## Week 13  :ox: 
 
 ### `Monday`     
-A.) 4 set  
-4-8 Strict handstand push-ups / Seated DB press                  
-5-10 Strict toes to bar  
+A.) Deadlift: Work your way up to a heavy set of 3 reps then do 3x5 reps @80% of the heavy set of 3.    
 
-B.) 3 set  
-8-12 Ring push-ups  
-10 Table Rockers  
+B.) Emom 8min  
+Min 1: 7/7 Bulgarian split squat    
+Min 2: 12-15 V-ups / tuck-ups  
 
-C.) 5 Rounds not for time   
-6 Strict supinated c2b pull-ups/ Pull-ups   
-15 V-ups / tuck-ups   
-8 Pike push-up / push-up   
-20s hollow hold        
+C.) 3 varv på tid:  
+40 Air Squat  
+30 Kettlebell swings 24/16kg   
+20 Diagonala v-ups   
+10 Burpee box jumps 60/50cm   
 
+14min Timecap   
+   
+ 
 
 ---
 ### `Tuesday`
-A.) Clean + Front Squat + Jerk anyhow: 7 sets 1+1+1 reps  
--Working sets start around 60% of 1RM C&J.  
+A.) AMRAP 8min  
+10 Alt DB snatch + Thruster 22/16kg   
+40 Double unders / 100 Single unders   
 
-B.) Front Squat: 6-6-4-4-2-2 reps   
--increase weight when reps decrease.   
-
-C.) 3 set   
-15 Lateral raises    
-15 Reverse flyes   
-20 Split jumps    
-    
+B.) AMRAP 8min   
+5 Ring muscle-ups / 8 C2B pull-ups / Pull-ups   
+8 Burpee box jump 60/50cm    
+ 
+C.) AMRAP 8min   
+15 Wall balls 9/6kg    
+10 Shuttle runs 5m     
 
 ----
 ### `Wednesday`
-Teamday!  
+A.) 5 sets   
+5 Bench press   
+8/8 DB Rows   
+-15min timecap, use heavy weight on the bench and medium weight for the rows.   
 
-For time:  
-150 kcal rodd   
-120 Goblet Squat 24/16kg  
-100 Burpee over plate   
-80 Push press 43/30kg   
-60 DB/KB step overs 2x16/2x12kg (50cm låda)   
-40 Pull-ups   
-
-Timecap: 30min   
-
--You go i go split the reps as needed.   
-  
+B.) 5 Sets   
+3 Hang power cleans  
+5 High box jumps   
+-15min timecap, use a heavy weight for the power cleans and a challenging height for the box jumps.   
 
 ----
 ### `Thursday`  
-A.) 4 Supersets  
-8-12 DB bench press   
-12 Ring rows   
+A.) Squat Clean: 6 x 3-1 reps  
+-Use a weight that is at least 70% or heavier of your 1RM for your working sets.  
 
-B.) 3 Supersets    
-10 Barbell rows    
-8-12 Ring push-ups / push-ups   
+B.) Back squat 80% x 5 reps 4 sets  
+-80% of 1RM Back Squat.   
 
-C.) 3 Supersets   
-8 Barbell curls   
-10 Seated DB tricep extension behind neck    
-
-D.) 3 Rounds not for time   
-15-20 Bench dips   
-20 Alternating DB hammer curls    
-   
-
+C.) 4set   
+Amrap Strict pull-ups    
+8/8 Bulgarian split squat     
+  
  
 
 ---
 ### `Friday` 
-A.) EMOM 30min  
-Min 1: Hang power cleans 43/30kg    
-Min 2: Shuttle runs 5m = 1rep    
-Min 3: Burpee over plate 10kg   
-Min 4: Wall balls 9/6kg   
-Min 5: Toes to bar   
-Min 6: Rest  
+
+[OPEN 23.3](https://games.crossfit.com/workouts/open/2023/3)
+   
+
+
