@@ -1,66 +1,80 @@
-## Week 13  :ox: 
+## Week 15  :polar_bear: 
 
 ### `Monday`     
-A.) Deadlift: Work your way up to a heavy set of 3 reps then do 3x5 reps @80% of the heavy set of 3.    
+A.) 4 sets  
+5 Bench press  
+8/8 DB Rows  
+-15min timecap, use heavy weight on the bench and medium weight for the rows.  
 
-B.) Emom 8min  
-Min 1: 7/7 Bulgarian split squat    
-Min 2: 12-15 V-ups / tuck-ups  
+B.) 5 Sets  
+3 Hang power cleans  
+5 High box jumps  
+-15min timecap, use a heavy weight for the power cleans and a challenging  height for the box jumps.  
 
-C.) 3 varv på tid:  
-40 Air Squat  
-30 Kettlebell swings 24/16kg   
-20 Diagonala v-ups   
-10 Burpee box jumps 60/50cm   
+C.) AMRAP 12min  
+8 Strict pull-ups   
+12 Strict press 35/25kg  
+16 Heavy Russian KB swings 32/24kg or heavier.    
+20 Diagonal V-ups (alt 10/10 each leg)  
+-Go through it in a slow and controlled pace.   
+       
 
-14min Timecap   
-   
- 
 
 ---
 ### `Tuesday`
-A.) AMRAP 8min  
-10 Alt DB snatch + Thruster 22/16kg   
-40 Double unders / 100 Single unders   
+A.) Emom 8min  
+1: 5-10 Kipping toes to bar/ knee raise  
+2: Handstand walk/ 15-20s Handstand  
 
-B.) AMRAP 8min   
-5 Ring muscle-ups / 8 C2B pull-ups / Pull-ups   
-8 Burpee box jump 60/50cm    
+B.) 4 rounds  
+8 Tuck-ups   
+15s Hollow hold  
+10 Seated leg lifts  
+15s Hollow hold  
+-Timecap 5min   
  
-C.) AMRAP 8min   
-15 Wall balls 9/6kg    
-10 Shuttle runs 5m     
+C.) AMRAP 20min  
+3min ON 1min OFF (5 intervals)   
+
+40 Double unders / 80 Single unders  
+18 Sit-ups  
+16 Goblet squat 24/16kg  
+10 Burpees    
+  
+    
 
 ----
 ### `Wednesday`
-A.) 5 sets   
-5 Bench press   
-8/8 DB Rows   
--15min timecap, use heavy weight on the bench and medium weight for the rows.   
+A.) “Helen”  
+3 Rounds for time  
+400m Run   
+21 Kettlebell swings 24/16kg (American)   
+12 Pull-ups   
+-Timecap 16min    
 
-B.) 5 Sets   
-3 Hang power cleans  
-5 High box jumps   
--15min timecap, use a heavy weight for the power cleans and a challenging height for the box jumps.   
+B.) 3 Rounds For time   
+30 Wall balls 9/6kg   
+20 Shoulder to overhead 43/30kg   
+-Timecap 10min    
+
+  
 
 ----
 ### `Thursday`  
-A.) Squat Clean: 6 x 3-1 reps  
--Use a weight that is at least 70% or heavier of your 1RM for your working sets.  
+A.) Deadlift: 5-5-5-3-3-2 reps  
+-Increase weight for every set.  
 
-B.) Back squat 80% x 5 reps 4 sets  
--80% of 1RM Back Squat.   
+B.) 15-12-9-6 reps not for time of   
+Barbell Rows   
+15 Band pull apparts   
 
-C.) 4set   
-Amrap Strict pull-ups    
-8/8 Bulgarian split squat     
-  
- 
+C.) Barbell curls with 3s pause at the top of every rep: 3x12 reps   
 
 ---
 ### `Friday` 
+A.) Back Squat: 3-3-5-5-8-8 reps  
+-Decrease weight when reps increase.  
 
-[OPEN 23.3](https://games.crossfit.com/workouts/open/2023/3)
-   
+B.) Lunges Backwards: 4x12 reps  
 
-
+C.) Romanian Deadlift 3x10 reps  
