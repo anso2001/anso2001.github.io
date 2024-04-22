@@ -1,79 +1,67 @@
-## Week 16 
+## Week 17
 
 ### `Monday`     
-A.) Back Squat: 
-70%x5  
-80%x4x2  
-85%x3x2  
-90%x2x2      
+`A.)` EMOM   
+Min 0-3: 3 Power clean + Push jerk  
+Min 4-6: 2 Power clean + Push jerk    
+Min: 7-9: 1 Power clean + Push jerk  
+-Increase weight by feel start around 60% of 1RM PC + PJ, clean + jerk counts as one rep.
 
-B.) Barbell Lunges backwards: 3x10 reps  
+`B.)` Every third minute for 18min  
+10 Front squats 60/43kg  
+8 Devils press 2x12,5/ 2x16kg  
+AMRAP box jumps until 2 minute mark, rest the remaining 1 minute.  
 
-C.) 3 Rounds for time  
-15 Sprawl box jump 60/50cm  
-20 Push-ups  
-40 Squat jumps  
-
-14min Timecap  
-   
- 
 ---
 ### `Tuesday`
-A.) 3 sets  
-10 Table Stands  
-20-30s One arm hang (alternate as you want during 20-30s)  
 
-B.) 4 sets  
-5 Weighted Dips  
-15s German hang  
+Teamday! 
 
-C.) 4 sets  
-5 Weighted pull-ups  
-3-8m Handstand walk /1-2 wall climbs  
+For time:
 
-D.) 10min Amrap  
-50 Double unders 100/ single unders  
-10/10 KB Clean & jerk 24/16kg (single arm, KB does not have to touch the ground)  
+400m Run - 100 Kcal Row
 
+400m Run - 90 Front rack lunges 43/30kg
 
+400m Run - 80 DB snatch 22/16kg
+
+400m Run - 70 Burpees 
+
+400m Run - 60 Pull-ups
+
+400m Run - 50 Clean & Jerk 60/43kg 
+
+  
 ----
 ### `Wednesday`
-2 Rounds for time:  
-800m Run  
-60 Wall balls 9/6kg  
-400m Run  
-40 Box jumps 60/50cm  
-200m Run  
-20 Toes to bar  
+`A.)` Front Squat: 5-5-3-3-1-1 reps  
+-Increase weight by feel, start around 75% of 1RM FS.
 
-Timecap 30min  
+`B.)` Walking lunges with dumbbells: 3x14 
+
+`C.)` 3 Supersets  
+10 Hip Thrusts against bench  
+14 Split jumps 
+
 
 ----
 ### `Thursday`  
-A.) Power clean: Work up to a heavy double for the day.  
-
-Timecap 14min.  
-
-B.) Deadlift: Jobba upp till en tung 3a  
-
-Timecap 14min.  
-
-C.) 3 sets  
-6 Partner hamstring  
-12 Barbell good mornings (don’t push the weights to much here)   
+EMOM 30min  
+Min 1: Kcal Row  
+Min 2: Burpees  
+Min 3: Kcal Ski erg  
+Min 4: Shuttle runs (5m =1 rep)  
+Min 5: Kcal Assault bike  
+Min 6: Rest 
 
 ---
 ### `Friday` 
-A.) 5 sets  
-5 Bench press 70-85% of 1RM  
-8/8 DB Rows  
+`A.)` 5 Rounds NOT FOR TIME  
+10 Bench press  
+10 Strict pull-ups  
+10 Barbell strict press  
+10 KB Gorilla rows
 
-B.) For time:  
-1000m Row  
-
-3 Rounds for time  
-21 Deadlifts 60/43kg  
-15 Burpees over bar  
-9 Shoulder to overhead 60/43kg  
-
-15min timecap  
+`B.)` 3 Supersets  
+12 Barbell bicep curl  
+20 Bench dips or narrow push ups  
