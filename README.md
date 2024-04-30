@@ -1,67 +1,67 @@
-## Week 17
+## Week 18  
 
 ### `Monday`     
-`A.)` EMOM   
-Min 0-3: 3 Power clean + Push jerk  
-Min 4-6: 2 Power clean + Push jerk    
-Min: 7-9: 1 Power clean + Push jerk  
--Increase weight by feel start around 60% of 1RM PC + PJ, clean + jerk counts as one rep.
+A.) Deadlift: 10-8-6-4-2 reps  
+-Start around 65% of 1RM    
 
-`B.)` Every third minute for 18min  
-10 Front squats 60/43kg  
-8 Devils press 2x12,5/ 2x16kg  
-AMRAP box jumps until 2 minute mark, rest the remaining 1 minute.  
+B.) 3 Supersets   
+8/8 One legged RDL   
+4-8 Strict supinated pull-ups    
+
+C.) 4 Supersets   
+12 Ring rows    
+12 Barbell bicep curl 
+ 
 
 ---
 ### `Tuesday`
 
-Teamday! 
-
-For time:
-
-400m Run - 100 Kcal Row
-
-400m Run - 90 Front rack lunges 43/30kg
-
-400m Run - 80 DB snatch 22/16kg
-
-400m Run - 70 Burpees 
-
-400m Run - 60 Pull-ups
-
-400m Run - 50 Clean & Jerk 60/43kg 
+A.) 5 Supersets   
+8-12 DB bench press   
+3-8 Strict supnated pull-ups  
+ 
+B.) 3 Rounds  
+400m Run  
+16 Toes to bar   
+12 Handstand push-ups      
 
   
 ----
 ### `Wednesday`
-`A.)` Front Squat: 5-5-3-3-1-1 reps  
--Increase weight by feel, start around 75% of 1RM FS.
+For time:
+50 Kcal row   
+50 Thrusters 30/20kg  
+50 Push-ups    
+50 Box jumps 60/50cm   
+50 Hang power cleans 43/30kg  
+50 Sit-ups  
+50 Split jumps   
 
-`B.)` Walking lunges with dumbbells: 3x14 
+30min Timecap 
 
-`C.)` 3 Supersets  
-10 Hip Thrusts against bench  
-14 Split jumps 
 
 
 ----
 ### `Thursday`  
-EMOM 30min  
-Min 1: Kcal Row  
-Min 2: Burpees  
-Min 3: Kcal Ski erg  
-Min 4: Shuttle runs (5m =1 rep)  
-Min 5: Kcal Assault bike  
-Min 6: Rest 
+A.) Back Squat: 5 x 5 reps  
+-Working sets start around 75% of 1 RM  
+
+B.) 5 Rounds for time   
+5/5 KB hang clean & jerk 24/16kg   
+30 Air squats   
+40 Double unders / 80 Single unders   
+15 Burpees  
+
 
 ---
 ### `Friday` 
-`A.)` 5 Rounds NOT FOR TIME  
-10 Bench press  
-10 Strict pull-ups  
-10 Barbell strict press  
-10 KB Gorilla rows
+A.) Strict press: 8-8-6-6-4-4 reps   
+-Increase weight by feel.  
 
-`B.)` 3 Supersets  
-12 Barbell bicep curl  
-20 Bench dips or narrow push ups  
+B.) 4 Supersets   
+8-12 DB bench press   
+15 Ring rows   
+
+C.) 4 Rounds not for time  
+10-15 DB curls   
+10-15 barbell skull crusher   
