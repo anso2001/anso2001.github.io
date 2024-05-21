@@ -1,76 +1,79 @@
-## Week 20  
+## Week 21 
 
 ### `Monday`     
-A.) Overhead squat: Work up to a heavy double.  
--Timecap 12min 
+A.) Deadlift: Work up to a heavy triple. 
 
-B.) Back squat: 70%x5 - 80%x4x2 - 85%x3x2  
+B.) Every second minute for 12min  
+10 Deadlifts @65% of today's triple.    
+7 Burpee box jumps 60/50cm  
 
-C.) 3 Rounds for time:  
-30 One arm front rack dumbbell lunges 22/16kg  
-20 Toes to bar / Kipping knee raises  
-10 Alternating one arm devils press 22/16kg     
+C.) 3 sets  
+16 Walking DB/KB lunges  
+6 Partner hamstring     
 
  
 
 ---
 ### `Tuesday`
 
-A.) 5 sets  
-5 Weighted Supinated pull-ups  
-10 V-ups  
-
-B.) For quality  
+A.) For quality  
 40 Handstand push-ups (kipping or strict)    
 Do 50 Double unders every time you come off the wall.  
 
-Timecap: 6min  
+-Timecap: 6min   
 
-C.) Every third minute for 15min  
-20 Wall balls 9/6kg  
-16 Sit-ups  
-Amrap mountain climbers until minute two.  
+B.) 4 Rounds not for time  
+1-2 Legless ropeclimb  
+5-10 Strict toes to bar  
+3-8 Supinated Chest to bar pull-ups   
+15-20 Hollow rocks  
+
+C.) 3 rounds not for time  
+10 Diagonal V-up   
+10 Leg lifts      
+10/10 side leg lifts   
+30s Plank  
+
    
 
   
 ----
 ### `Wednesday`
-Every fifth minute for 30 minutes.  
-400m run  
-10 Box jumps 60/50cm  
-10 Hang power cleans 60/43kg  
--The goal is to get around two minutes of rest every interval, if it gets to tight lower the reps on BJ and HPC.   
+Teamday!  
+
+5 Rounds for time   
+
+400m Run  
+12 Power cleans 70/50kg  
+30 Wall balls 9/6kg   
+
+Cash out: 1000m Rodd  
+
+-Split the reps on PC, WB and meters on the rower. Complete the run
+together.   
+
 
 
 ----
 ### `Thursday`  
-A.) Deadlift:
-60% x 8  
-70% x 6  
-80% x 4  
-90% x 2  
-95% x 1  
-101% x 1  
--Try going heavier if possible, aim for 1RM!!      
-  
+A.) Overhead squat: Work up to a heavy single for the day.  
+-Timecap 12min  
 
-B.) 3 sets   
-8/8 Bulgarian split squat  
-6 Partner hamstring  
+B.) Front Squat: 6-6-4-4-2-2 reps  
+-Increase weight when the reps decrease.  
 
-C.) 3 sets of “Ryggdödaren”  
-10 Straight weighted back extensions  
-10 Spine roll ups (unweighted)  
--Do this in the GHD. 
+C.) 3 sets   
+10 Behind neck barbell presses  
+15 Lateral raises   
+15 Band pull apparts  
+
 
 
 ---
 ### `Friday` 
-A.) Bench press: 5x5  
--Warm up to your first working set around 75% of 1RM, increase the weight from there. 
+“CINDY”  
 
-B.) Amrap 15min 
-20 Dumbbell hang clean & jerks 22/16kg 
-20 Goblet squat 24/16kg 
-10 Pull-ups 
-10 Burpees  
+AMRAP 20min  
+5 pull-ups  
+10 Push-ups  
+15 Air squats     
