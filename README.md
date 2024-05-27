@@ -1,79 +1,58 @@
-## Week 21 
+## Week 22   
 
 ### `Monday`     
-A.) Deadlift: Work up to a heavy triple. 
+A.) Weighted Dips : 12-9-6-3-12 reps
 
-B.) Every second minute for 12min  
-10 Deadlifts @65% of today's triple.    
-7 Burpee box jumps 60/50cm  
-
-C.) 3 sets  
-16 Walking DB/KB lunges  
-6 Partner hamstring     
-
- 
+B.) 15min AMRAP   
+200m Run   
+10 Handstand push-ups  
+30 Air squats     
 
 ---
 ### `Tuesday`
 
-A.) For quality  
-40 Handstand push-ups (kipping or strict)    
-Do 50 Double unders every time you come off the wall.  
+A.) Every 3 min for 15min  
+25/20  Kcal row - Max burpee to plate until min 2.   
 
--Timecap: 6min   
+B.) Every 3 min for 15min.    
+Amrap for 2min   
+7 DB Thrusters 2x22/2x16kg  
+10 Pull-ups  
 
-B.) 4 Rounds not for time  
-1-2 Legless ropeclimb  
-5-10 Strict toes to bar  
-3-8 Supinated Chest to bar pull-ups   
-15-20 Hollow rocks  
-
-C.) 3 rounds not for time  
-10 Diagonal V-up   
-10 Leg lifts      
-10/10 side leg lifts   
-30s Plank  
-
-   
-
-  
 ----
 ### `Wednesday`
-Teamday!  
+A.) Bench press: 8-8-6-6-4-4 reps 
 
-5 Rounds for time   
+B.) 3 Sets  
+10 Barbell rows  
+12 Lateral raises   
 
-400m Run  
-12 Power cleans 70/50kg  
-30 Wall balls 9/6kg   
-
-Cash out: 1000m Rodd  
-
--Split the reps on PC, WB and meters on the rower. Complete the run
-together.   
-
-
-
+C.) 3 Sets  
+15 Barbell Skull crusher    
+15-20 Bench dips  
+ 
 ----
 ### `Thursday`  
-A.) Overhead squat: Work up to a heavy single for the day.  
--Timecap 12min  
+A.) Overhead squat: Work up to a heavy single.  
+-Timecap: 12min  
 
-B.) Front Squat: 6-6-4-4-2-2 reps  
--Increase weight when the reps decrease.  
+B.) Every second minute for 10min  
+10 Overhead squats @60% of today's single.   
+10 Box jump overs 60/50cm  
 
-C.) 3 sets   
-10 Behind neck barbell presses  
-15 Lateral raises   
-15 Band pull apparts  
+C.) Every second minute for 10min   
+7 Front squats 60/43kg   
+15 American KB swings 24/16kg   
+
+-The goal for B.) and C.) is to get around 50/50 rest work time. So if you cant make the amount of work in around a minute then lower the reps. 
+
 
 
 
 ---
 ### `Friday` 
-“CINDY”  
+“DIANE”  
 
-AMRAP 20min  
-5 pull-ups  
-10 Push-ups  
-15 Air squats     
+21-15-9 reps for time: 
+Deadlifts 100/70kg  
+Handstand push-ups      
