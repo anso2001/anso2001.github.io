@@ -1,58 +1,76 @@
-## Week 22   
+## Week 23  
 
 ### `Monday`     
-A.) Weighted Dips : 12-9-6-3-12 reps
+A.) Power snatch + Overhead squat: 7 x  2+1 reps  
+-Aim for a heavy top set or work on technique at a moderate weight. Timecap 14min.   
 
-B.) 15min AMRAP   
-200m Run   
-10 Handstand push-ups  
-30 Air squats     
+B.) Back squat: Work up to a heavy set of 5.  
+Timecap: 15min   
+
+C.) 3 rounds for time:  
+400m Run  
+25 Wall balls 9/6kg  
+25 American kettlebell swings 24/16kg    
+  
 
 ---
 ### `Tuesday`
 
-A.) Every 3 min for 15min  
-25/20  Kcal row - Max burpee to plate until min 2.   
+A.) Deadlift: 5x5 reps  
+-Working weight should start around 70% of 1RM, go heavier for every set.    
 
-B.) Every 3 min for 15min.    
-Amrap for 2min   
-7 DB Thrusters 2x22/2x16kg  
-10 Pull-ups  
+B.) 4 sets  
+5 Weighted pull-ups   
+8/8 Bulgarian split squat   
+
+C.) 3 sets  
+12 Barbell rows  
+15 Band pull-aparts   
+
+
 
 ----
 ### `Wednesday`
-A.) Bench press: 8-8-6-6-4-4 reps 
+A.) 4 Sets   
+1-2 Legless rope climb  
+20/20 Side hollow hold   
 
-B.) 3 Sets  
-10 Barbell rows  
-12 Lateral raises   
+B.) 4 sets  
+3-10 Ring dips  
+8/8 Side crunch on bench   
 
-C.) 3 Sets  
-15 Barbell Skull crusher    
-15-20 Bench dips  
- 
+C.) AMRAP 12min  
+7 Toes to bar   
+10 Push-ups  
+20 Split jumps  
+60 Double unders  
+
 ----
 ### `Thursday`  
-A.) Overhead squat: Work up to a heavy single.  
--Timecap: 12min  
 
-B.) Every second minute for 10min  
-10 Overhead squats @60% of today's single.   
-10 Box jump overs 60/50cm  
+A.) Amrap 8min  
+3 Muscle-ups (Rings or bar)   
+12 Box jumps 60/50cm  
 
-C.) Every second minute for 10min   
-7 Front squats 60/43kg   
-15 American KB swings 24/16kg   
+B.) Amrap 8min    
+20/18 Kcal row   
+6 Thrusters 50/35kg   
 
--The goal for B.) and C.) is to get around 50/50 rest work time. So if you cant make the amount of work in around a minute then lower the reps. 
+C.) Amrap 8min  
+10 Alt DB snatch 32/22kg   
+10 Burpees over DB    
 
 
 
 
 ---
 ### `Friday` 
-“DIANE”  
+A.) Strict press: 10-8-6-4-2 reps   
 
-21-15-9 reps for time: 
-Deadlifts 100/70kg  
-Handstand push-ups      
+B.) 4 Sets  
+8-12 DB push press (Slow and controlled eccentric fase)  
+12 High pull ring row  
+
+C.) 3 Sets     
+15 Lateral raises  
+15 Reverse flyes  
