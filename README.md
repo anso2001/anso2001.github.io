@@ -1,76 +1,71 @@
-## Week 23  
+## Week 24   
 
 ### `Monday`     
-A.) Power snatch + Overhead squat: 7 x  2+1 reps  
--Aim for a heavy top set or work on technique at a moderate weight. Timecap 14min.   
+A.) Back squat: Work up to a heavy triple.  
+-Aim for a weight that's around 90% of your 1RM, Timecap 16min.  
 
-B.) Back squat: Work up to a heavy set of 5.  
-Timecap: 15min   
-
-C.) 3 rounds for time:  
-400m Run  
-25 Wall balls 9/6kg  
-25 American kettlebell swings 24/16kg    
+B.) Amrap 20min  
+6/4 Strict pull-ups (RX+ Strict C2B)   
+12 Box jump over 60/50cm  
+8 Handstand push-ups (RX+ Strict HSPU)  
+16 American kettlebell swings 24/16kg    
+  
   
 
 ---
 ### `Tuesday`
 
-A.) Deadlift: 5x5 reps  
--Working weight should start around 70% of 1RM, go heavier for every set.    
+A.) Overhead squat: 4x3 reps  
+-This is a warm up so use a light weight, from a empty barbell to 30kg.  
 
-B.) 4 sets  
-5 Weighted pull-ups   
-8/8 Bulgarian split squat   
+B.) Hang snatch + Overhead squat: 7x1+1 reps  
+-Working sets starts at 60% of 1RM Snatch.  
 
-C.) 3 sets  
-12 Barbell rows  
-15 Band pull-aparts   
+C.) 9min AMRAP  
+10 Power snatch 43/30kg  
+8 Burpee over bar  
+10 Overhead squat 43/30kg  
+8 Burpee over bar  
+  
 
 
 
 ----
 ### `Wednesday`
-A.) 4 Sets   
-1-2 Legless rope climb  
-20/20 Side hollow hold   
+Teamday! 
 
-B.) 4 sets  
-3-10 Ring dips  
-8/8 Side crunch on bench   
+For time 
 
-C.) AMRAP 12min  
-7 Toes to bar   
-10 Push-ups  
-20 Split jumps  
-60 Double unders  
+1.6 km run  
+30-25-20 reps of   
+Pull-ups  
+Wall balls 9/6kg   
+Deadlifts 100/70kg  
+1.6 km run   
+
+Timecap: 35min  
+  
 
 ----
 ### `Thursday`  
 
-A.) Amrap 8min  
-3 Muscle-ups (Rings or bar)   
-12 Box jumps 60/50cm  
+A.) Power clean + Push jerk: Work up to a heavy single.  
+-Timecap 14min.   
 
-B.) Amrap 8min    
-20/18 Kcal row   
-6 Thrusters 50/35kg   
+B.) Deadlift: 5x3 reps   
+-Increase weight for every set.  
 
-C.) Amrap 8min  
-10 Alt DB snatch 32/22kg   
-10 Burpees over DB    
-
-
-
+C.) Barbell rows: 4x8 reps  
+-Go Heavy!     
 
 ---
 ### `Friday` 
-A.) Strict press: 10-8-6-4-2 reps   
+A.) 5 sets   
+5-8 Weighted dips   
+5-10 Strict toes to bar   
 
-B.) 4 Sets  
-8-12 DB push press (Slow and controlled eccentric fase)  
-12 High pull ring row  
-
-C.) 3 Sets     
-15 Lateral raises  
-15 Reverse flyes  
+B.) Amrap 15min   
+3 Muscle-ups  
+15 Sit-ups  
+ 20 Squat jumps  
+40 Double unders    
