@@ -1,71 +1,78 @@
-## Week 24   
+## Week 25  
 
 ### `Monday`     
-A.) Back squat: Work up to a heavy triple.  
--Aim for a weight that's around 90% of your 1RM, Timecap 16min.  
+A.) 5 superset   
+5 Bench press (Ca 80-85% of 1RM)   
+3-5 Weighted pull-ups  
 
-B.) Amrap 20min  
-6/4 Strict pull-ups (RX+ Strict C2B)   
-12 Box jump over 60/50cm  
-8 Handstand push-ups (RX+ Strict HSPU)  
-16 American kettlebell swings 24/16kg    
-  
+B.) 5 Rounds for time  
+10 Push press 43/30kg   
+15 American kettlebell swings 24/16kg   
+30 Air squats   
+
+
   
 
 ---
 ### `Tuesday`
 
-A.) Overhead squat: 4x3 reps  
--This is a warm up so use a light weight, from a empty barbell to 30kg.  
+A.) 4 Rounds not for time   
+2-8m Handstand walk / 20-30s Handstand / 1-2 Wall climb.   
+5-10 Strict Toes to bar   
+5-10 Ring dips / 5-10 Ring push ups   
+20/20s Side plank  
 
-B.) Hang snatch + Overhead squat: 7x1+1 reps  
--Working sets starts at 60% of 1RM Snatch.  
+-Timecap 15min   
 
-C.) 9min AMRAP  
-10 Power snatch 43/30kg  
-8 Burpee over bar  
-10 Overhead squat 43/30kg  
-8 Burpee over bar  
-  
+B.) AMRAP 3 Rounds   
+Min 1: Double unders  
+Min 2: Push-ups   
+Min 3: Split jumps   
+Min 4: Ring rows  
+Min 5: Tuck -ups  
+Min 6: Rest  
+
+-Total time: 18min      
+
+
 
 
 
 ----
 ### `Wednesday`
-Teamday! 
+3 Rounds for time:   
+800m Run   
+20 Thrusters 43/30kg   
+20 Pull-ups  
 
-For time 
+-Timecap: 20min    
 
-1.6 km run  
-30-25-20 reps of   
-Pull-ups  
-Wall balls 9/6kg   
-Deadlifts 100/70kg  
-1.6 km run   
 
-Timecap: 35min  
   
 
 ----
 ### `Thursday`  
 
-A.) Power clean + Push jerk: Work up to a heavy single.  
--Timecap 14min.   
+ A.) Back Squat: 12-9-6-3-6-9-12 Reps   
+-Increase weight when the reps decrease and the opposite when reps   increase.  
 
-B.) Deadlift: 5x3 reps   
--Increase weight for every set.  
+B.) 3-4 Sets (depending on time)   
+10 Bench hip thrust   
+40s Weighted plank     
 
-C.) Barbell rows: 4x8 reps  
--Go Heavy!     
+
 
 ---
 ### `Friday` 
 A.) 5 sets   
-5-8 Weighted dips   
-5-10 Strict toes to bar   
+3 Hang power clean   
+5 High box jumps   
+-Timecap 15min   
 
-B.) Amrap 15min   
-3 Muscle-ups  
-15 Sit-ups  
- 20 Squat jumps  
-40 Double unders    
+B.) Deadlift: Work up to a heavy set of 5 reps   
+-Timecap 15min   
+
+C.) 5 Rounds for time   
+200m Run   
+10 Burpees   
+-Timecap 12min     
