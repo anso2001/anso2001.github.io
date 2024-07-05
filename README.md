@@ -1,78 +1,88 @@
-## Week 25  
+## Week 26   
 
 ### `Monday`     
-A.) 5 superset   
-5 Bench press (Ca 80-85% of 1RM)   
-3-5 Weighted pull-ups  
+A.) Emom 20min  
+1: 1-3 Muscle-ups (Rings or Bar) / Band assisted bar muscle-ups / Ring  transitions.  
+2: Handstand walk for distance / 1-2 Wall climbs.  
+3: 10-16 Diagonal v-ups.   
+4: 20/20 One legged glute bridge on bench.  
 
-B.) 5 Rounds for time  
-10 Push press 43/30kg   
-15 American kettlebell swings 24/16kg   
-30 Air squats   
-
+B.) Not for time  
+3 Rounds  
+8/6 Strict pull-ups  
+10/8 Strict Handstand push-ups   
+15 V-ups   
+ 
+3 Rounds   
+15 Ring rows   
+15 Push-ups  
+20 Toe touch  
 
   
 
 ---
 ### `Tuesday`
 
-A.) 4 Rounds not for time   
-2-8m Handstand walk / 20-30s Handstand / 1-2 Wall climb.   
-5-10 Strict Toes to bar   
-5-10 Ring dips / 5-10 Ring push ups   
-20/20s Side plank  
+A.) Clean: Work up to a heavy single.  
+-Timecap 14min  
 
--Timecap 15min   
+B.) For time  
+15 Cleans @ 60%  
+10 Cleans @ 70%   
+5 Cleans @80%          
+-Timecap 8min, work through the reps with as good technique as possible.  
 
-B.) AMRAP 3 Rounds   
-Min 1: Double unders  
-Min 2: Push-ups   
-Min 3: Split jumps   
-Min 4: Ring rows  
-Min 5: Tuck -ups  
-Min 6: Rest  
-
--Total time: 18min      
-
+C.) For time  
+60/52 Kcal row   
+60 Wall balls 9/6kg   
+60 American kettlebells swings 24/16kg   
+30 Burpees   
+-Timecap 16min     
 
 
 
 
 ----
 ### `Wednesday`
-3 Rounds for time:   
-800m Run   
-20 Thrusters 43/30kg   
-20 Pull-ups  
+A.) Bench press: Work up to 1RM.   
+After the 1RM is established do: 3x5 reps @80%    
+   
+B.) 3 sets   
+8-12 DB push press (Slow and controlled eccentric phase)   
+14 Gorilla rows.   
 
--Timecap: 20min    
-
+C.) Barbell skull crusher: 20-12-12-20 reps    
 
   
 
 ----
 ### `Thursday`  
 
- A.) Back Squat: 12-9-6-3-6-9-12 Reps   
--Increase weight when the reps decrease and the opposite when reps   increase.  
+3 Rounds for time    
+10 Snatches 43/30kg (Squat snatch)   
+18/15 Kcal Row  
+-Timecap 8min   
+ 
+Rest 4min then..   
 
-B.) 3-4 Sets (depending on time)   
-10 Bench hip thrust   
-40s Weighted plank     
+3 rounds for time    
+200m Run   
+10/10 DB push press 22/16kg   
 
+Rest 4min then..   
+
+3 Rounds for time   
+15 Pull-ups   
+15 Burpee Box jumps 60/50cm   
+
+-Total time: 34min   
 
 
 ---
 ### `Friday` 
-A.) 5 sets   
-3 Hang power clean   
-5 High box jumps   
--Timecap 15min   
+A.) Hang power clean + hang clean: 7x1+1 reps   
+-Aim for a heavy set for the day.   
 
-B.) Deadlift: Work up to a heavy set of 5 reps   
--Timecap 15min   
+B.) Deadlift: 5x3 reps 80-90% of 1RM   
 
-C.) 5 Rounds for time   
-200m Run   
-10 Burpees   
--Timecap 12min     
+C.) Core work (coach’s choice)   
