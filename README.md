@@ -1,86 +1,75 @@
-## Week 33  
+## Week 34  
 
 ### `Monday`     
-A.) Deadlift: Jobba upp till en tung 3a gör sedan 3x5 reps @80% av den tunga 3an.    
+A.) Every 3 min for 15 min  
+6 Bench press   
+Max rep strict pull-ups  
 
-B.) Emom 8min   
-Min 1: 7/7 Bulgarian split squat     
-Min 2: 12-15 V-ups / tuck-ups  
+B.) Every 3 min for 15 min  
+3 Power clean  
+5 Box jumps  
 
-C.) 3 varv på tid:   
-40 Air Squat  
-30 Kettlebell swings 24/16kg  
-20 Diagonala v-ups   
-10 Burpee box jumps 60/50cm   
-
-14min Timecap   
+C.) Valfri mage   
 
 ---
 ### `Tuesday`
-A.) Emom 16min  
-Min 1: 1-3 Ring muscle-ups / 4 Muscle up transition  
-Min 2: 30s Hollow hold   
-Min 3: Handstand walk/ 1-2 Wall cilmbs   
-Min 4: 5-10 Strict TTB / Liggande benlyft       
+A.) Back squat: 5x5 @80% av 1RM  
 
-B.) AMRAP 8min   
-12 Handstand push-up   
-10 DB box step overs 2x22kg/2x16kg (50cm box)  
+B.) AMRAP 20min  
+30 DB snatch 22/16kg  
+30 Medball sit-up 9/6kg  
+15/15 DB push press 22/16kg  
+30 Medball russian twist 9/6kg  
+30 DB one arm front rack squat 22/16kg  
+30 Diagonal V-up  
 
-C.) AMRAP 8min   
-20 Wall balls 9/6kg   
-40 Double unders /80 Single unders   
 
 
 
 ----
 ### `Wednesday`
-Teamday!   
-A.) For time:   
-40 Power snatches 43/30kg   
-30 Burpees over bar   
-40 Power cleans 50/35kg   
-30 Burpees over bar  
-40 Front squats 60/43kg   
-30 burpees over bar       
-40 Deadlifts 80/55kg   
-30 Burpees over bar  
+A.) 3 Set  
+1-2 Legless rope climb / Strict pull-up  
+30s Hollow rocks / hollow hold  
 
--Dela på repsen som ni vill mellan er.   
+B.) 3 set  
+3-5 Strict C2B / pull-up / ring row  
+20/20s Side hollow hold  
 
-B.) For time:   
-2000m rodd  
+C.) L-sit hold 3x max time  
 
--Dela upp metrarna mellan er som ni vill.  
+D.) 3 rounds not for time.  
+20 Sit-ups   
+20 Push-ups  
+20 Leg lifts  
+20 Dips  
+40 Arch ups   
+
 
 
 
 ----
 ### `Thursday`  
-A.) 4 set    
-5 Strict shoulder press   
-3-5 Weighted pull-ups   
+Teamday!  
+ 
+A.) AMRAP 10min  
+8 Power snatch 43/30kg   
+30 Double unders / 60 single unders  
 
-B.) 4 set   
-8-10 DB bench press   
-10 Barbell rows   
+-Byt av varandra efter varje varv,to tala antalet varv räknas.  
 
-C.) 3 set   
-15 Barbell curl   
-15-20 Bench dips   
-15 Lateral raises  
+B.) 20min AMRAP   
+50 kcal row  
+30 Thrusters 35/25kg (RX+ 43/30kg)  
+20 Synch burpees over bar      
+
 
 
 
 ---
 ### `Friday` 
-A.) Hang squat clean.   
--Använd 12min till att jobba upp till en tung singel för dagen.   
+A.) Deadlift: Jobba upp till en tung 5a, ta sedan av vikt och gör 3x5 reps @85% av dagens 5a.  
 
-B.) Back Squat: 4x5 reps   
--Ca 70-85% av 1RM    
+B.) Bulgarian split squat: 3x6/6 reps  
 
-C.) AMRAP 10min   
-15 C2B pull-ups / pull-ups    
-20 Box jumps over 60/50cm       
-25 DB Snatch 22/16kg   
+C.) Partner Hamstringcurl: 3x6 reps  
