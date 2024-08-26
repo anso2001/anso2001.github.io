@@ -1,75 +1,72 @@
-## Week 34  
+## Week 35  
 
 ### `Monday`     
-A.) Every 3 min for 15 min  
-6 Bench press   
-Max rep strict pull-ups  
+A.) Squat Clean: 5-4-3-2-1 reps 
+-Increase weight for every set start around 60% of 1RM.  
 
-B.) Every 3 min for 15 min  
-3 Power clean  
-5 Box jumps  
+B.) Back squat: 4x5 reps  
+-Working sets start at 70% increase weight by feel.  
 
-C.) Valfri mage   
+C.) Hip Thrusts on bench: 3x12 reps  
+
 
 ---
 ### `Tuesday`
-A.) Back squat: 5x5 @80% av 1RM  
+A.) Push press: 5-5-5-3-3 reps  
+Start around 70% of 1RM and increase by feel.  
 
-B.) AMRAP 20min  
-30 DB snatch 22/16kg  
-30 Medball sit-up 9/6kg  
-15/15 DB push press 22/16kg  
-30 Medball russian twist 9/6kg  
-30 DB one arm front rack squat 22/16kg  
-30 Diagonal V-up  
+B.) 3 Supersets  
+10/10 DB rows  
+15 Lateral raises  
 
+C.) 21-15-9 reps of:   
+Box jump over 60/50cm  
+Overhead squats 35/25kg  
 
-
+cash out: 21 burpees over bar  
 
 ----
 ### `Wednesday`
-A.) 3 Set  
-1-2 Legless rope climb / Strict pull-up  
-30s Hollow rocks / hollow hold  
+Teamday!  
 
-B.) 3 set  
-3-5 Strict C2B / pull-up / ring row  
-20/20s Side hollow hold  
+For time:  
 
-C.) L-sit hold 3x max time  
+400m Run - 100 Kcal Row  
+400m Run - 90 Front rack lunges 43/30kg  
+400m Run - 80 DB snatch 22/16kg  
+400m Run - 70 Burpees  
+400m Run - 60 Pull-ups  
+400m Run - 50 Clean & Jerk 60/43kg   
 
-D.) 3 rounds not for time.  
-20 Sit-ups   
-20 Push-ups  
-20 Leg lifts  
-20 Dips  
-40 Arch ups   
 
 
 
 
 ----
 ### `Thursday`  
-Teamday!  
- 
-A.) AMRAP 10min  
-8 Power snatch 43/30kg   
-30 Double unders / 60 single unders  
 
--Byt av varandra efter varje varv,to tala antalet varv räknas.  
+A.) Deadlift: 5x3 reps  
+Working sets start around 70% of 1RM increase by feel.  
 
-B.) 20min AMRAP   
-50 kcal row  
-30 Thrusters 35/25kg (RX+ 43/30kg)  
-20 Synch burpees over bar      
+B.) 3 Supersets  
+15 DB romanian deadlifts  
+20 Split jumps  
 
-
-
+C.) AMRAP 9min  
+30 Double unders  
+12 V-ups  
+3 Wall walks  
 
 ---
 ### `Friday` 
-A.) Deadlift: Jobba upp till en tung 5a, ta sedan av vikt och gör 3x5 reps @85% av dagens 5a.  
+A.) 4 Supersets  
+8 Barbell rows (go heavy)  
+10  Weighted push-ups  
 
-B.) Bulgarian split squat: 3x6/6 reps  
-
-C.) Partner Hamstringcurl: 3x6 reps  
+B.) AMRAP 3 Rounds  
+Min 1: Kcal Row  
+Min 2: DB push press 2x22/2x16kg  
+Min 3: Ring rows  
+Min 4: Bench dips  
+Min 5: Box jumps 60/50cm   
+Min 6: Rest  
