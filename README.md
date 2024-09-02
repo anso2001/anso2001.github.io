@@ -1,72 +1,72 @@
-## Week 35  
+## Week 36  
 
 ### `Monday`     
-A.) Squat Clean: 5-4-3-2-1 reps 
--Increase weight for every set start around 60% of 1RM.  
+A.) Bench press: 5x5  
+-Working sets start at 70% of 1RM increase weight by feel.  
 
-B.) Back squat: 4x5 reps  
--Working sets start at 70% increase weight by feel.  
+B.) 3 supersets  
+10/10 DB rows  
+15 Band pull apparts  
+C.) 5 Rounds for time:  
+20 Dumbbell snatch 22/16kg  
+10 Burpee box jump 60/50cm  
 
-C.) Hip Thrusts on bench: 3x12 reps  
 
 
 ---
 ### `Tuesday`
-A.) Push press: 5-5-5-3-3 reps  
-Start around 70% of 1RM and increase by feel.  
+A.) 8 Min Amrap  
+200m Run  
+20 Wall balls 9/6kg  
 
-B.) 3 Supersets  
-10/10 DB rows  
-15 Lateral raises  
+B.) 8 Min Amrap  
+21/18 Kcal row  
+10 Shoulder to overhead 60/43kg  
 
-C.) 21-15-9 reps of:   
-Box jump over 60/50cm  
-Overhead squats 35/25kg  
+C.) 8 Min Amrap  
+30 Double unders / 60 single unders  
+16  Kettlebell front rack lunges 2x16/2x12kg  
+8 Toes to bar  
 
-cash out: 21 burpees over bar  
 
 ----
 ### `Wednesday`
-Teamday!  
+A.) Touch and go power clean: 12-9-6-3 reps  
+-Increase weight by feel, do not drop the bar before you completed all the reps.  
 
-For time:  
+B.) Front squat: 10-8-6-4-2 reps  
+-Working sets start around 65% of 1RM, increase weight for every set.  
 
-400m Run - 100 Kcal Row  
-400m Run - 90 Front rack lunges 43/30kg  
-400m Run - 80 DB snatch 22/16kg  
-400m Run - 70 Burpees  
-400m Run - 60 Pull-ups  
-400m Run - 50 Clean & Jerk 60/43kg   
-
-
-
+C.) 3 Supersets   
+15 Weighted skier squats  
+14 Split jumps  
 
 
 ----
 ### `Thursday`  
 
-A.) Deadlift: 5x3 reps  
-Working sets start around 70% of 1RM increase by feel.  
+A.) EMOM  30min  
+Min 1: Conditioning machine by choice (kcal)   
+Min 2: Box jump overs 60/50cm  
+Min 3: Burpees   
+Min 4: American kettlebell swings 24/16kg  
+Min 5: Pull-ups   
+Min 6: Rest  
 
-B.) 3 Supersets  
-15 DB romanian deadlifts  
-20 Split jumps  
+-Total amount of reps will be you're score  
 
-C.) AMRAP 9min  
-30 Double unders  
-12 V-ups  
-3 Wall walks  
 
 ---
 ### `Friday` 
 A.) 4 Supersets  
-8 Barbell rows (go heavy)  
-10  Weighted push-ups  
+8 Barbell rows  
+12-15 Standing DB shoulder press 
+B.) 3 Supersets  
+12 DB bench press  
+15 Ring rows  
 
-B.) AMRAP 3 Rounds  
-Min 1: Kcal Row  
-Min 2: DB push press 2x22/2x16kg  
-Min 3: Ring rows  
-Min 4: Bench dips  
-Min 5: Box jumps 60/50cm   
-Min 6: Rest  
+C.) 25-20-15 reps of  
+Barbell skull crusher  
+Lateral raises  
+barbell bicep curl  
+band pull apparts  
