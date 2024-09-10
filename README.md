@@ -1,72 +1,78 @@
-## Week 36  
+## Week 37  
 
 ### `Monday`     
-A.) Bench press: 5x5  
--Working sets start at 70% of 1RM increase weight by feel.  
+A.) Power clean + push jerk: 3-3-2-2-1-1 reps  
+- Increase weight by feel.  
 
-B.) 3 supersets  
-10/10 DB rows  
-15 Band pull apparts  
-C.) 5 Rounds for time:  
-20 Dumbbell snatch 22/16kg  
-10 Burpee box jump 60/50cm  
+B.) 5 Supersets  
+4 Front squat + 3s negative  
+5 High box jumps   
 
-
+C.) 3 Supersets   
+8/8 Single leg RDL   
+20 Split jumps  
 
 ---
 ### `Tuesday`
-A.) 8 Min Amrap  
-200m Run  
-20 Wall balls 9/6kg  
+A.) Strict press 
+- Work up to a heavy single, then drop down to 80% of the HS and complete 4 x 5 reps  
 
-B.) 8 Min Amrap  
-21/18 Kcal row  
-10 Shoulder to overhead 60/43kg  
+B.) 3 Supersets  
+8/8 Dumbbell rows   
+15 Reverse flyes  
 
-C.) 8 Min Amrap  
-30 Double unders / 60 single unders  
-16  Kettlebell front rack lunges 2x16/2x12kg  
-8 Toes to bar  
+
+C.) 3 Rounds for time:  
+20 Pull-ups  
+30 Wall balls 9/6kg  
+
+Cash out 100 Double unders   
 
 
 ----
 ### `Wednesday`
-A.) Touch and go power clean: 12-9-6-3 reps  
--Increase weight by feel, do not drop the bar before you completed all the reps.  
+A.) EMOM 18min   
 
-B.) Front squat: 10-8-6-4-2 reps  
--Working sets start around 65% of 1RM, increase weight for every set.  
+Min 1: Kcal Ski erg  
+Min 2: Box jump over 60/50cm   
+Min 3: Push-ups  
+Min 4: Double DB Power clean 2x22/2x16kg  
+Min 5: Air squats  
+Min 6: Rest  
 
-C.) 3 Supersets   
-15 Weighted skier squats  
-14 Split jumps  
-
+B.) EMOM 18min   
+Min 1: Kcal Assault Bike  
+Min 2: Burpees   
+Min 3: Overhead lunge 20/15kg (Weight plate)  
+Min 4: American Kettlebell swings 24/16kg  
+Min 5: Kcal Row  
+Min 6: Rest  
 
 ----
 ### `Thursday`  
 
-A.) EMOM  30min  
-Min 1: Conditioning machine by choice (kcal)   
-Min 2: Box jump overs 60/50cm  
-Min 3: Burpees   
-Min 4: American kettlebell swings 24/16kg  
-Min 5: Pull-ups   
-Min 6: Rest  
+A.) Deadlift: 5-5-5-3-3-3 reps  
+- Increase weight by feel, working sets start around 75% of 1RM  
 
--Total amount of reps will be you're score  
+B.) Barbell Lunges backwards: 4 x 10 Reps  
 
+C.) Core work of coach's choice!   
 
 ---
 ### `Friday` 
-A.) 4 Supersets  
-8 Barbell rows  
-12-15 Standing DB shoulder press 
-B.) 3 Supersets  
-12 DB bench press  
-15 Ring rows  
+Teamday!  
 
-C.) 25-20-15 reps of  
-Barbell skull crusher  
-Lateral raises  
-barbell bicep curl  
-band pull apparts  
+For time in teams of two:  
+
+10 Rounds  
+3 Power snatches 50/35kg   
+30 Double unders / 40 single unders   
+
+5 Rounds  
+10 Hang power cleans 60/43kg  
+30 Single arm DB thruster 16/12,5kg   
+
+3 Rounds     
+50 Kcal Row   
+30 Burpee box jump over 60/50cm     
+
