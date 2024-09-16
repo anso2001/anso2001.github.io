@@ -1,78 +1,86 @@
-## Week 37  
+## Week 38  
 
 ### `Monday`     
-A.) Power clean + push jerk: 3-3-2-2-1-1 reps  
-- Increase weight by feel.  
+A.) 5 Supersets  
+5 Tempo bench press @32X2  
+12 Ring rows  
 
-B.) 5 Supersets  
-4 Front squat + 3s negative  
-5 High box jumps   
+B.) Reverse flyes: 3x15 reps (Slow and controlled with 1s pause at top of movement)  
 
-C.) 3 Supersets   
-8/8 Single leg RDL   
-20 Split jumps  
+C.) Every third minute for 15min  
+18 Wall balls 9/6kg  
+6 Burpee box jump over 60/50cm  
+AMRAP Double unders until 2min mark  
+
+-If you can't complete all the reps of WB´s and BBJO within two minutes drop the reps or drop weight of the WB and jump onto a lower box.    
 
 ---
 ### `Tuesday`
-A.) Strict press 
-- Work up to a heavy single, then drop down to 80% of the HS and complete 4 x 5 reps  
+A.) Emom 10min  
+Power snatch + overhead squat with 2s pause at bottom.  
+Min 0-3: 3 PS + 2 OHS  
+Min 4-6: 2 PS + 2 OHS   
+Min 7-1: 1 PS + 1 OHS
 
-B.) 3 Supersets  
-8/8 Dumbbell rows   
-15 Reverse flyes  
+B.) 4 Supersets  
+5 Tempo back squat @3032  
+5 High box jump with focus on hip extension.  
 
-
-C.) 3 Rounds for time:  
-20 Pull-ups  
-30 Wall balls 9/6kg  
-
-Cash out 100 Double unders   
-
+C.) Amrap 12min  
+10 Toes to bar / knee raises / tuck-ups  
+5/5 One arm DB thruster 22/16kg  
+20 Sit-ups  
+20 Alternating DB snatch 22/16kg  
 
 ----
 ### `Wednesday`
-A.) EMOM 18min   
+A.) 4 Supersets  
+8 Barbell rows  
+1/1 Turkish get-up  
 
-Min 1: Kcal Ski erg  
-Min 2: Box jump over 60/50cm   
-Min 3: Push-ups  
-Min 4: Double DB Power clean 2x22/2x16kg  
-Min 5: Air squats  
-Min 6: Rest  
+B.) 3 Supersets  
+6-10 Hinge Row https://youtu.be/S3vjG6A28do  
+15-30s Hollow hold  
 
-B.) EMOM 18min   
-Min 1: Kcal Assault Bike  
-Min 2: Burpees   
-Min 3: Overhead lunge 20/15kg (Weight plate)  
-Min 4: American Kettlebell swings 24/16kg  
-Min 5: Kcal Row  
-Min 6: Rest  
+C.) For time:  
+100 American Kettlebell swings 24/16kg  
+-Everytime you rest, complete 10 burpees before you continue on the swings.   
+
+Finnish with some core work if there's time! :)  
+
 
 ----
 ### `Thursday`  
 
-A.) Deadlift: 5-5-5-3-3-3 reps  
-- Increase weight by feel, working sets start around 75% of 1RM  
+A.) Every third minute for 9  minutes  
+20/17 Kcal Row   
+Amrap until 2min mark:  
+Burpees  
 
-B.) Barbell Lunges backwards: 4 x 10 Reps  
+B.) Every third minute for 9 minutes  
+200m Run   
+Amrap until 2min mark:   
+6 deadlifts 50/35kg RX+70/50   
+4 hang power cleans 50/35kg RX+70/50/   
+2 Shoulder to overhead 50/35kg  RX+70/50  
 
-C.) Core work of coach's choice!   
+C.) Every third minute for 9 minutes  
+12 Box jumps 60/50cm  
+12 Alternating front rack KB step-ups 2x16/2x12kg 50/60cm   
+Amrap until 2min mark:  
+Bar Muscle-ups/ chest to bar pull-ups / pull-ups / ring row  
 
 ---
 ### `Friday` 
-Teamday!  
 
-For time in teams of two:  
+A.) Deadlift: 5 x 5 reps  
+-Working sets start around 70% of 1RM, increase weight by feel.  
 
-10 Rounds  
-3 Power snatches 50/35kg   
-30 Double unders / 40 single unders   
+B.) 3 Supersets  
+8 Tempo barbell strict press @3030  
+10 High pulls with KB + 2s pause at the top  
 
-5 Rounds  
-10 Hang power cleans 60/43kg  
-30 Single arm DB thruster 16/12,5kg   
-
-3 Rounds     
-50 Kcal Row   
-30 Burpee box jump over 60/50cm     
-
+C.) 3 Rounds not for time  
+10 DB tricep extension behind neck  
+15 Bandes push-down   
+20 Bench dips         
