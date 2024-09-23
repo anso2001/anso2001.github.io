@@ -1,86 +1,74 @@
-## Week 38  
+## Week 39  
 
 ### `Monday`     
-A.) 5 Supersets  
-5 Tempo bench press @32X2  
-12 Ring rows  
+A.) Emom 12min  
+Clean & jerk 1+1 reps  
+-Increase weight by feel, start at 50-60% of 1RM. (Squat clean & split jerk)  
 
-B.) Reverse flyes: 3x15 reps (Slow and controlled with 1s pause at top of movement)  
+B.) Tempo back squats: 6-6-4-4-2 reps @30X2    
+-Increase weight by feel, Start around 65% of 1RM BS.  
 
-C.) Every third minute for 15min  
-18 Wall balls 9/6kg  
-6 Burpee box jump over 60/50cm  
-AMRAP Double unders until 2min mark  
-
--If you can't complete all the reps of WB´s and BBJO within two minutes drop the reps or drop weight of the WB and jump onto a lower box.    
+C.) AMRAP 10min  
+10 Push-ups  
+15 American kettlebell swings 24/16kg  
+10/10 Diagonal V-ups on medball  
+25 Air squats  
 
 ---
 ### `Tuesday`
-A.) Emom 10min  
-Power snatch + overhead squat with 2s pause at bottom.  
-Min 0-3: 3 PS + 2 OHS  
-Min 4-6: 2 PS + 2 OHS   
-Min 7-1: 1 PS + 1 OHS
+A.) AMRAP 8min  
+3-6-9-12-15...and so on of:  
+Thrusters 43/30kg  
+Pull-ups   
 
-B.) 4 Supersets  
-5 Tempo back squat @3032  
-5 High box jump with focus on hip extension.  
+B.) AMRAP 8min  
+500/450m Row  
+3 Wall Climbs  
 
-C.) Amrap 12min  
-10 Toes to bar / knee raises / tuck-ups  
-5/5 One arm DB thruster 22/16kg  
-20 Sit-ups  
-20 Alternating DB snatch 22/16kg  
+C.) AMRAP 8min  
+5 Devils press 2x16/2x12.5kg  
+10 Box jump overs 60/50cm  
 
 ----
 ### `Wednesday`
-A.) 4 Supersets  
-8 Barbell rows  
-1/1 Turkish get-up  
+A.) Deadlift: 10-8-6-4-2 reps  
+-Start around 65% of 1RM   
 
 B.) 3 Supersets  
-6-10 Hinge Row https://youtu.be/S3vjG6A28do  
-15-30s Hollow hold  
+8/8 One legged RDL   
+4-8 Strict supinated pull-ups   
 
-C.) For time:  
-100 American Kettlebell swings 24/16kg  
--Everytime you rest, complete 10 burpees before you continue on the swings.   
-
-Finnish with some core work if there's time! :)  
-
+C.) 4 Supersets  
+12 Ring rows  
+12 Barbell bicep curl  
 
 ----
 ### `Thursday`  
 
-A.) Every third minute for 9  minutes  
-20/17 Kcal Row   
-Amrap until 2min mark:  
-Burpees  
 
-B.) Every third minute for 9 minutes  
-200m Run   
-Amrap until 2min mark:   
-6 deadlifts 50/35kg RX+70/50   
-4 hang power cleans 50/35kg RX+70/50/   
-2 Shoulder to overhead 50/35kg  RX+70/50  
+A.) EMOM 20min  
+Min 1: Handstand walk / 2-3 wall climbs  
+Min 2: 5-10 Strict toes to bar  
+Min 3: 8/8 Pistol squats  
+Min 4: 12 Alternating renegade row  
 
-C.) Every third minute for 9 minutes  
-12 Box jumps 60/50cm  
-12 Alternating front rack KB step-ups 2x16/2x12kg 50/60cm   
-Amrap until 2min mark:  
-Bar Muscle-ups/ chest to bar pull-ups / pull-ups / ring row  
+B.) 3 Rounds  
+400m Run  
+16 Toes to bar  
+12 Handstand push-ups   
+
 
 ---
 ### `Friday` 
 
-A.) Deadlift: 5 x 5 reps  
--Working sets start around 70% of 1RM, increase weight by feel.  
+A.) Tempo bench press: 5 x 5 reps @32X2  
 
 B.) 3 Supersets  
-8 Tempo barbell strict press @3030  
-10 High pulls with KB + 2s pause at the top  
+5-10 Ring dips  
+12 Inverted rows   
 
-C.) 3 Rounds not for time  
-10 DB tricep extension behind neck  
-15 Bandes push-down   
-20 Bench dips         
+C.) 3 Rounds not for time   
+12 Barbell curls  
+20 Alternating DB hammer curls   
+12 Narrow push-ups  
+20 Banded push downs   
