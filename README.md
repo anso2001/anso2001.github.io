@@ -1,74 +1,73 @@
-## Week 39  
+## Week 44  
 
 ### `Monday`     
-A.) Emom 12min  
-Clean & jerk 1+1 reps  
--Increase weight by feel, start at 50-60% of 1RM. (Squat clean & split jerk)  
+A.) Every 3 min for 15 min  
+6 Bench press  
+Max rep strict pull-ups  
 
-B.) Tempo back squats: 6-6-4-4-2 reps @30X2    
--Increase weight by feel, Start around 65% of 1RM BS.  
+B.) Every 3 min for 15 min  
+3 Power clean  
+5 Box jumps  
 
-C.) AMRAP 10min  
-10 Push-ups  
-15 American kettlebell swings 24/16kg  
-10/10 Diagonal V-ups on medball  
-25 Air squats  
+C.) Core work of coaches choice.     
+ 
 
 ---
 ### `Tuesday`
-A.) AMRAP 8min  
-3-6-9-12-15...and so on of:  
-Thrusters 43/30kg  
-Pull-ups   
+A.) Back squat: 8-8-6-6-4-4 reps  
 
-B.) AMRAP 8min  
-500/450m Row  
-3 Wall Climbs  
+B.) 3 Supersets  
+10/10 One legged RDL  
+12 Weighted skier squat  
+ 
+B.) AMRAP 10min  
+14 Alternating DB snatch + Lunge 22/16kg  
+7/7 Diagonal v-up  
+40 Double unders / 80 Single unders  
 
-C.) AMRAP 8min  
-5 Devils press 2x16/2x12.5kg  
-10 Box jump overs 60/50cm  
 
 ----
 ### `Wednesday`
-A.) Deadlift: 10-8-6-4-2 reps  
--Start around 65% of 1RM   
+A.) 3 Set  
+1-2 Legless rope climb / Strict pull-up   
+30s Hollow rocks / hollow hold  
 
-B.) 3 Supersets  
-8/8 One legged RDL   
-4-8 Strict supinated pull-ups   
+B.) 3 set  
+3-5 Strict C2B / pull-up / ring row   
+20/20s Side hollow hold   
 
-C.) 4 Supersets  
-12 Ring rows  
-12 Barbell bicep curl  
+C.) L-sit hold 3x max time   
+
+D.) 3 rounds not for time.  
+10/10 Diagonal v-up on medball    
+20 Push-ups  
+20 Leg lifts  
+20 Dips   
+20 Arch ups    
+  
 
 ----
 ### `Thursday`  
+Teamday!  
 
+A.) AMRAP 10min  
+8 Power snatch 43/30kg   
+30 Double unders / 60 single unders   
 
-A.) EMOM 20min  
-Min 1: Handstand walk / 2-3 wall climbs  
-Min 2: 5-10 Strict toes to bar  
-Min 3: 8/8 Pistol squats  
-Min 4: 12 Alternating renegade row  
+-Complete one round before switching team member.   
 
-B.) 3 Rounds  
-400m Run  
-16 Toes to bar  
-12 Handstand push-ups   
+B.) 20min AMRAP   
+50 kcal row  
+30 Thrusters 35/25kg (RX+ 43/30kg)  
+20 Synch burpees over bar     
 
 
 ---
 ### `Friday` 
+A.) Deadlift: Work up to a heavy set of 3 for the day.  
 
-A.) Tempo bench press: 5 x 5 reps @32X2  
+B.) Romanian deadlifts: 3x12 reps     
 
-B.) 3 Supersets  
-5-10 Ring dips  
-12 Inverted rows   
+C.) Partner Hamstringcurl: 3x6 reps  
 
-C.) 3 Rounds not for time   
-12 Barbell curls  
-20 Alternating DB hammer curls   
-12 Narrow push-ups  
-20 Banded push downs   
+D.) Barbell bicep curls: 3x12   
